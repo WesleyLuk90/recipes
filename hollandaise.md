@@ -2,7 +2,7 @@
 
 * 12 tablespoons (3/4 cup) unsalted butter, softened
 * 6 large egg yolks
-* 1/2 cup boiling water
+* 1/3 cup boiling water
 * 2 teaspoons lemon juice
 * 1/8 teaspoon cayenne pepper
 
